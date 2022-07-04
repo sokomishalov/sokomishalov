@@ -1,6 +1,6 @@
 Hi! My name is Mikhael Sokolov.
 
-Based in Moscow, Russian Federation.
+Born in Moscow 🇷🇺, live in Tbilisi 🇬🇪.
 
 The fastest way to reach me - contact me via [telegram](https://t.me/sokomishalov).
 
